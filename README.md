@@ -1,4 +1,4 @@
-# ✨[📞💻](https://t.me/blockchainDeveloper_Ben)
+# ✨[📞💻](https://t.me/Ecrypto_1)
 
 # Solana Arbitrage Bot Architecture
 
